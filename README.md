@@ -6,7 +6,7 @@
 - 📫 How to reach me **anishraj365@gmail.com**
 
 - ⚡ Fun fact
-- **I sit in front of my computer whole day.**
+ **I sit in front of my computer whole day.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
